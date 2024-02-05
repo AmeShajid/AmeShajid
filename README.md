@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AmeShajid
+- 👀 I’m interested in web development, game development, and any type of development. 
+- 🌱 I’m currently learning python. Then for frontend I plan on learning: javascript, HTML, CSS, C++. For backend: Python, Node, Java, C#, Rust
+- 💞️ I’m looking to collaborate on any type of help please! I want to get as good as possible.
+- 📫 How to reach me Instagram: ame.s5 Snapchat: bombsarebad
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I want to be an amazing coder.
