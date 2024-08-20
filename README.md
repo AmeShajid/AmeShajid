@@ -4,4 +4,4 @@
 - 💞️ Looking for people to guide me and become as good as I possibly can. 
 - 📫 How to reach me Instagram: ame.s5 Snapchat: bombsarebad Linkedin: Ame Shajid
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I want to be an amazing coder.
+- ⚡ Fun fact: I love capybara and playing soccer and volleyball 
